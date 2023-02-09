@@ -1,4 +1,4 @@
-# turalhusey
+# turalhuseynli
 
 👽 Hi there 👋
 
